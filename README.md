@@ -1,1 +1,0 @@
-# Nuriprtw.github.io
